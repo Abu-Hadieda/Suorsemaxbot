@@ -1,4 +1,4 @@
 
 ### تابع : [MAX](https://t.me/M_2_X) ###
 
-![MAX](https://te.legra.ph/file/80ff0951e619289e99c79.jpg)
+![MAX]([.](https://t.me/c/1664152275/5)https://t.me/c/1664152275/5jpg)
